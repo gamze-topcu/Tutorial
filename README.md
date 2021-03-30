@@ -1,3 +1,0 @@
-# Tutorial
-aasdas
-deneme
